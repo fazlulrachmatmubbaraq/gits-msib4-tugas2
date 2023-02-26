@@ -1,1 +1,2 @@
-# gits-msib4-tugas2
+Fazlul Rachmat Mubbaraq
+Universitas Halu Oleo
